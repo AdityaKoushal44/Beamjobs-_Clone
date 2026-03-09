@@ -1,0 +1,1 @@
+I work everyday to improve in web dev because this is the path i choose and ill give my all to pursue and further master my first skill frontend 
